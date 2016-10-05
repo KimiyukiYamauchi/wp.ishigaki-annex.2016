@@ -1,0 +1,1 @@
+# wp.ishigaki.-annex.2016
